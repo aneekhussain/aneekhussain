@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aneekhussain
 - 👀 I’m interested in gaming and having fun with friends
-- 🌱 I’m currently learning software engineering on university
+- 🌱 I’m currently learning software engineering
 - 📫 How to reach me is on my email: mohammadaneekhussain@gmail.com
 
 <!---
