@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aneekhussain
-- 👀 I’m interested in gaming and having fun with friends
+- 👀 I’m interested in gaming, IT and having fun with friends
 - 🌱 I’m currently learning IT-Technolgy
 - 📫 How to reach me is on my email: aneekhussain@gmail.com
 
